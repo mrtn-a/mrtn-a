@@ -1,4 +1,6 @@
-## Hey, I'm Martyna ⚡
+## Hey, I'm Martyna  <img src="https://cdn-icons-png.flaticon.com/512/3983/3983258.png" width="28px" >
+
+
 <img src="https://thelonelytribalist.files.wordpress.com/2015/08/nointernet_dinogame_gif.gif" >
 
 ### Connect with me:
