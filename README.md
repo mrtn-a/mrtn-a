@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+ <img src="https://thelonelytribalist.files.wordpress.com/2015/08/nointernet_dinogame_gif.gif">
 <!--
 **mrtn-a/mrtn-a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
